@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TonyaDove
 - 👀 I’m interested in connecting with tech professionals
-- 🌱 I’m currently a tech recruiting 
+- 🌱 I’m a tech talent liaison
 - 💞️ I’m looking to collaborate with tech industry leaders 
 - 📫 How to reach me tonya.marie.dove@gmail.com or https://www.linkedin.com/in/tonyadove/
